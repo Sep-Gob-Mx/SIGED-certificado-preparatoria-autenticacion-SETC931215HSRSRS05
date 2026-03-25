@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SETC931215HSRSRS05
+SETC931215HSRSRS05
